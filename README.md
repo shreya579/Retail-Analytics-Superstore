@@ -118,7 +118,7 @@ The key objectives of this analysis include:
 ## 👨‍💻 Author
 
 **Shreya Pandey**
-📫 LinkedIn: \[Your LinkedIn Profile]
+📫 LinkedIn: [Linkdin](https://www.linkedin.com/in/shreya-pandey-97252431b/)
 
 ---
 
